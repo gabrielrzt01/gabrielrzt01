@@ -11,4 +11,4 @@ Meu nome é Gabriel Antônio
 00001114408013SP@al.educacao.sp.gov.br
 
 @Gabriel_antonio_23
-![https://i.makeagif.com/media/3-07-2016/6H4tpT.gif](link GIF do Tenor)
+![](https://i.makeagif.com/media/3-07-2016/6H4tpT.gif)
